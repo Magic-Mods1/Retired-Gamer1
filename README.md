@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Retired-Gamer1
+# 👋 Hi there, I'm Magic Mods
 
 ![Profile views](https://komarev.com/ghpvc/?username=Retired-Gamer1&color=green&style=flat-square)
 
